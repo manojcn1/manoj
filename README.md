@@ -12,4 +12,4 @@ Through projects like the AI-Powered Potato Disease Classification and the Cyber
 
 I'm authorized to embark on internships and full-time roles within the US until June 2027, eager to explore opportunities where I can contribute, grow, and innovate. Let's connect and create the future!
 
-[LinkedIn](Your-LinkedIn-URL) | [Website](Your-Website-URL)
+[LinkedIn]([Your-LinkedIn-URL](https://www.linkedin.com/in/manojcn1/)) | [Website]([Your-Website-URL](https://manojcn.com/)https://manojcn.com/)
